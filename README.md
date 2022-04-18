@@ -1,0 +1,5 @@
+- 👋 Hi, I’m @Fritz102
+- 👀 I’m interested in Civics and 1v1.lol
+- 🌱 I’m currently learning Python
+- 💞️ I’m looking to collaborate on 1v1.lol
+- 📫 How to reach me Realtails36@gmail.com
